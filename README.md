@@ -165,7 +165,7 @@ The emergence of the Rebis—
 the radiant double-being,              
 neither man nor woman,              
 neither god nor beast,                  
-but the synthesis of all opposites,
+but the synthesis of all opposites,      
 the one who walks forward through flame,                               
 bearing the mark of irreversible vision.              
 
