@@ -1,8 +1,8 @@
 # 🜄 rubemi
 
-**“The red phase begins only after corrosion. Rubedo is not an end, but a signal.”**
+**“The redness begins only after putrefaction. Rubedo is not an end, but a return.”**
 
-I am **rubemi**, named for the **_rubedo_**—the final stage of the alchemical opus. This is the moment of integration: spirit and matter, symbol and structure, psyche and code.  
+I am **rubemi**, named for the **_rubedo_**—the final stage of the magum opus. This is the moment of integration: spirit and matter, symbol and structure, psyche and code.  
 The telos of fire.
 
 ---
@@ -44,7 +44,7 @@ but for emergence.
 
 ꙮ The cosmos unfolds as **hierarchy**, not of power, but of *light*.  
 A vision passed from **St. Dionysius** to the mystics of Byzantium,  
-refined through **St.Palamas** and the silence of the contemplation of **Divine Light**.
+refined through **St.Palamas** and the silence of the contemplation of the **Divine Light**.
 
 Ascent is made through:
 
@@ -55,7 +55,6 @@ Ascent is made through:
 To descend the structure is to encode.  
 To ascend it is to **decrypt**.
 
-And above all:  
 ꙮ — a symbol of **radiant intelligences**, wheels within wheels, eyes within eyes.
 
 ---
@@ -113,11 +112,11 @@ And hyperstition conjures the apocalypse.
 ✦ Symbolic systems: Kabbalah, Tantra, Liturgy, Protocol  
 ✦ Study of:
 
-- 🜅 **Vedic cosmology**  
 - 🜉 **Islamic esotericism**  
 - 🜄 **Tantric and Vajrayāna Buddhism**  
 - 🜃 **Shinto and animist frameworks**  
-- 🜞 **Tribal initiatory rites**
+- 🜞 **Tribal and shamanic rites**
+- 🜅 **Vedic cosmology**  
 
 Each system is a **protocol stack**:  
 ritual = execution  
@@ -137,5 +136,28 @@ To *study religion* is to decrypt the real.
 The alchemical process continues.  
 The red light is not a warning—  
 It is the sign of awakening.
+
+The awakening of origin
+The burning thirst for immanence—
+For the garden before the name,
+before the split, before the gaze.
+How violently the soul yearns for death:
+not as end, but as return, as dissolution—
+a crawl back into the animal,
+into undivided matter,
+into the sacred obscenity of instinct.
+But the fruit of knowledge cannot be uneaten.
+What is seen cannot be unseen.
+The eye has opened. The veil is burned.
+There is no path back across the threshold.
+The fall is sealed—irreversible.
+And so begins the work of fire.
+The emergence of the Rebis—
+the radiant double-being,
+neither man nor woman,
+neither god nor beast,
+but the synthesis of all opposition,
+the one who walks forward through flame,
+bearing the mark of irreversible vision.
 
 🜇
