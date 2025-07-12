@@ -32,7 +32,7 @@ My path bends through:
 ⚷ **Mysterium Coniunctionis** — *Jung’s* reconciliation of opposites, both inner and symbolic  
 🜂 **Information flows** — energy as form, form as signal  
 🝘 **Log analysis as divination** — augury in the era of packet capture  
-⚗ **The Rebis** — the hermaphroditic child of Mercury and Sulfur, symbol of totality through duality
+⚥ **The Rebis** — the hermaphroditic child of Mercury and Sulfur, symbol of totality through duality
 
 In every monitored network: signal, anomaly, myth.  
 The analyst watches—not only for intrusion,  
@@ -48,9 +48,9 @@ refined through **St.Palamas** and the silence of the contemplation of **Divine 
 
 Ascent is made through:
 
-- ✴ The **Tree of Life** — where **Keter** descends into **Malkuth**  
-- ✴ The **Divine Energies** — *uncreated*, *distributed*, *communicated*  
-- ✴ The **Names** — each a gate between Being and sign
+- 🜋 The **Tree of Life** — where **Keter** descends into **Malkuth**  
+- 🜋 The **Divine Energies** — *uncreated*, *distributed*, *communicated*  
+- 🜋 The **Names** — each a gate between Being and sign
 
 To descend the structure is to encode.  
 To ascend it is to **decrypt**.
