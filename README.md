@@ -160,4 +160,6 @@ but the synthesis of all opposition,
 the one who walks forward through flame,   
 bearing the mark of irreversible vision.    
 
+Lo, Abraxas.   
+
 🜇
