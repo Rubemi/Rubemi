@@ -145,10 +145,19 @@ How violently the soul yearns for death:
 not as end, but as return, as dissolution—    
 a crawl back into the animal,   
 into undivided matter,   
-into the sacred obscenity of instinct.   
+into the sacred obscenity of instinct,
+the thirst for annihilation.   
 But the fruit of knowledge cannot be uneaten.   
 What is seen cannot be unseen.    
-The eye has opened. The veil is burned.       
+the Veil of Isis, once sacred, now ash.   
+The goddess stands naked in the blinding truth.   
+Like Siproites who beheld Artemis unveiled,   
+and in the act of seeing, was transmuted—   
+his form alchemized by forbidden light,   
+sight giving birth to a new nature.    
+Promethean in defiance,      
+Sophian in fall—     
+we steal fire and plunge into the abyss of wisdom.     
 There is no path back across the threshold.    
 The fall is sealed—irreversible.   
 And so begins the work of fire.    
