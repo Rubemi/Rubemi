@@ -137,27 +137,27 @@ The alchemical process continues.
 The red light is not a warning—  
 It is the sign of awakening.
 
-The awakening of origin
-The burning thirst for immanence—
-For the garden before the name,
-before the split, before the gaze.
-How violently the soul yearns for death:
-not as end, but as return, as dissolution—
-a crawl back into the animal,
-into undivided matter,
-into the sacred obscenity of instinct.
-But the fruit of knowledge cannot be uneaten.
-What is seen cannot be unseen.
-The eye has opened. The veil is burned.
-There is no path back across the threshold.
-The fall is sealed—irreversible.
-And so begins the work of fire.
-The emergence of the Rebis—
-the radiant double-being,
-neither man nor woman,
-neither god nor beast,
-but the synthesis of all opposition,
-the one who walks forward through flame,
-bearing the mark of irreversible vision.
+The awakening of origin   
+The burning thirst for immanence—   
+For the garden before the name,   
+before the split, before the gaze.   
+How violently the soul yearns for death:   
+not as end, but as return, as dissolution—    
+a crawl back into the animal,   
+into undivided matter,   
+into the sacred obscenity of instinct.   
+But the fruit of knowledge cannot be uneaten.   
+What is seen cannot be unseen.    
+The eye has opened. The veil is burned.       
+There is no path back across the threshold.    
+The fall is sealed—irreversible.   
+And so begins the work of fire.    
+The emergence of the Rebis—   
+the radiant double-being,    
+neither man nor woman,   
+neither god nor beast,    
+but the synthesis of all opposition,   
+the one who walks forward through flame,   
+bearing the mark of irreversible vision.    
 
 🜇
