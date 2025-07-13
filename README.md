@@ -136,8 +136,11 @@ To *study religion* is to decrypt the real.
 The alchemical process continues.  
 The red light is not a warning—  
 It is the sign of awakening.
+
+## ☿ The Sacrament, The Grial
+
 <p align="center">
-The Awakening of Origin         <br>
+<b>The Awakening of Origin</b>         <br><br>
 The burning thirst for immanence—   <br>
 for the garden before the name,   <br>
 before the split, before the gaze.   <br>
