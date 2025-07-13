@@ -136,39 +136,40 @@ To *study religion* is to decrypt the real.
 The alchemical process continues.  
 The red light is not a warning—  
 It is the sign of awakening.
-
-The Awakening of Origin         
-The burning thirst for immanence—   
-for the garden before the name,   
-before the split, before the gaze.   
-How violently the soul yearns for death:    
-not as end, but as return, as dissolution—  
-a crawl back into the animal,      
-into undivided matter,                      
-into the sacred obscenity of instinct,           
-the thirst for annihilation.                       
-But the fruit of knowledge cannot be uneaten.            
-What is seen cannot be unseen.            
-The Veil of Isis—once sacred—is now ash.    
-The goddess stands naked in the blinding truth.                                            
-Like Siproites, who beheld Artemis unveiled,                  
-and in the act of seeing was transmuted—                 
-his form alchemized by forbidden light,      
-vision giving birth to a new nature.                   
-Promethean in defiance,               
-Sophian in fall—                  
-we steal fire and descend into the abyss of wisdom.                             
-There is no path back across the threshold.                                       
-The fall is sealed—irreversible.                                
-And so begins the work of fire.                                 
-The emergence of the Rebis—                          
-the radiant double-being,              
-neither man nor woman,              
-neither god nor beast,                  
-but the synthesis of all opposites,      
-the one who walks forward through flame,                               
-bearing the mark of irreversible vision.              
-
-Lo Abraxas.    
-
+<p align="center">
+The Awakening of Origin         <br>
+The burning thirst for immanence—   <br>
+for the garden before the name,   <br>
+before the split, before the gaze.   <br>
+How violently the soul yearns for death:    <br>
+not as end, but as return, as dissolution—  <br>
+a crawl back into the animal,      <br>
+into undivided matter,                    <br>  
+into the sacred obscenity of instinct,           <br>
+the thirst for annihilation.                       <br>
+But the fruit of knowledge cannot be uneaten.            <br>
+What is seen cannot be unseen.            <br>
+The Veil of Isis—once sacred—is now ash.    <br>
+The goddess stands naked in the blinding truth. <br>                                           
+Like Siproites, who beheld Artemis unveiled,        <br>          
+and in the act of seeing was transmuted—                <br> 
+his form alchemized by forbidden light,      <br>
+vision giving birth to a new nature.      <br>             
+Promethean in defiance,               <br>
+Sophian in fall—                  <br>
+we steal fire and descend into the abyss of wisdom.         <br>                    
+There is no path back across the threshold.                     <br>                  
+The fall is sealed—irreversible.                                <br>
+And so begins the work of fire.                                 <br>
+The emergence of the Rebis—                          <br>
+the radiant double-being,              <br>
+neither man nor woman,              <br>
+neither god nor beast,                  <br>
+but the synthesis of all opposites,      <br>
+the one who walks forward through flame,     <br>                          
+bearing the mark of irreversible vision.         <br>     
+<br>
+Lo Abraxas. <br>   
+<br>
 🜇
+</p>
