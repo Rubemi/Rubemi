@@ -134,7 +134,7 @@ To *defend a system* is to transmute it.
 To *study religion* is to decrypt the real.
 
 The alchemical process continues.  
-The red light is not a warning—  
+The redness is not a warning—  
 It is the sign of awakening.
 
 ---
