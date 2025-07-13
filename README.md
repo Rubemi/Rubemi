@@ -137,6 +137,8 @@ The alchemical process continues.
 The red light is not a warning—  
 It is the sign of awakening.
 
+---
+
 ## ☿ The Sacrament, The Grial
 
 <p align="center">
